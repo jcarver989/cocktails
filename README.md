@@ -71,6 +71,8 @@ Hence a great rule of thumb is if your drink has citrus juice in it (lemon, lime
 - 0.25oz cinnamon infused [simple syrup](#Simple Syrup)
 - 3-4 dashes Angostura bitters
 
+_Less Scurvy, More Napster_
+
 ### Sage Sour
 
 - 2oz Borboun
@@ -78,6 +80,8 @@ Hence a great rule of thumb is if your drink has citrus juice in it (lemon, lime
 - 1 egg white
 - 0.75 oz sage infused [simple syrup](#Simple Syrup)
 - 3-4 dashes Angostura bitters
+
+_A wise choice_
 
 ### Ginger/Rosemary Sour
 
@@ -98,6 +102,8 @@ Hence a great rule of thumb is if your drink has citrus juice in it (lemon, lime
 - 0.25oz [Allspice (pimiento) Dram](#Allspice Dram)
 - 2-3 dashes Angostura bitters
 
+_Deep, and there's no going back_
+
 ### Cucumber Basil Gimlet
 - 2 oz Hendricks Gin
 - 1 oz lime juice
@@ -112,6 +118,17 @@ Hence a great rule of thumb is if your drink has citrus juice in it (lemon, lime
 - 4-5 thin slices of ginger muddled
 - Splash of club soda 
 - Garnish with fresh mint
+
+_Puts the 'kick' in 'kicking back'_
+
+### Ninja
+
+- 1.5 oz Tequila
+- 2.5 oz Tonic Water
+- Ice
+- Splash of lime juice
+
+_Never saw it coming_
 
 ## Spirit Forward Cocktails
  - Coming Soon
